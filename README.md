@@ -5,4 +5,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![okei](https://github.com/user-attachments/assets/828a429f-b4af-44be-b40c-c759547aac9c)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=d8a48f&label=freakshow&style=plastic&abbreviated=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://komarev.com/ghpvc/?username=20waystokillsomeone&color=ffb6c8&label=freakshow&style=plastic&abbreviated=true)
